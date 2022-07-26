@@ -4,9 +4,9 @@
 
 **# - دعم المستخدمين بالأكواد و اللغات البرمجية ✅**
 
-**# - دعم لجميع اللغات البرمجية ✅**
+**# - دعم لمعظم اللغات البرمجية ✅**
 
-**# - مبرمجين محترفين ✅**
+**# - برمجة احترفية ✅**
 
 `dsc.gg/nightcodes` ♨️
 
@@ -14,10 +14,10 @@
 
 `N1ght Codes` 💻
 
-**# - Helping coders with problems ✅**
+**# - Help Solving coding issues ✅**
 
-**# - Supporting all languages ✅**
+**# - Supporting most languages ✅**
 
-**# - Professionals ✅**
+**# - Professionalism ✅**
 
 `dsc.gg/nightcodes` ♨️
